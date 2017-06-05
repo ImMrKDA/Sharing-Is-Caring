@@ -8,7 +8,7 @@
 
 [Get the Idea: capturing attention](http://fourthfloor.raveweb.net/karboleda/2017/06/04/get-the-idea-capturing-attention/)
 
-[Infographic stories](http://fourthfloor.raveweb.net/karboleda/wp-admin/post.php?post=164&action=edit)
+[Infographic stories](http://fourthfloor.raveweb.net/karboleda/2017/06/04/two-infographic-stories/)
 
 [Copywriting is Interface Design](http://fourthfloor.raveweb.net/karboleda/2017/06/05/copywriting-is-interface-design/)
 
